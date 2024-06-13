@@ -3,4 +3,3 @@
 - 🌱 I’m currently learning to program
 - 📫 How to reach me pietra250506@gmail.com
 - 😄 Pronouns: she/her
-- 
